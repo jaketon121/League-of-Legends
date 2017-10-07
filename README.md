@@ -5,3 +5,7 @@
 送给和我一样喜欢玩的朋友。
 
 
+# 我大中华盖伦
+
+https://tieba.baidu.com/f?kw=%E7%9B%96%E4%BC%A6&ie=utf-8&tp=0
+
